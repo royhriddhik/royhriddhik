@@ -1,8 +1,5 @@
  👋 Hi, I’m @royhriddhik 
- 
- 👀 I’m interested in ...
- 
- 🌱 I’m currently learning ...
+
 
  😎 follow==me on insta & twitter_-_-_  
  ✨ #roy_hriddhik.....
